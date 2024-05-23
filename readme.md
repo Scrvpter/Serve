@@ -4,7 +4,7 @@
 
 - 1 Sweet can be redeemed per point earned
 
-- A keychain can be redeemed once you've reached the minimum floor of 6 points.
+- 1 keychain can be redeemed once you've reached the minimum floor of 6 points.
 
 - $1 Discount (max 1 per person) can be redeemed for 4 points
 
